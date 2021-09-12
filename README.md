@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jacky0800
+- 👀 I’m interested in to eat bread
+- 🌱 I’m currently learning anything
+- 📫 How to reach me: jacky0800dr@gmail.com
